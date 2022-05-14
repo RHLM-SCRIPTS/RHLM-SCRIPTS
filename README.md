@@ -16,7 +16,7 @@
 
 👀 Developer of HTML,JS,CSS,LUA,PHP.
 
-👑 Founder of the Saints RP: https://discord.gg/HAFDzTnDrg
+👑 Founder of Los Santos RP: https://discord.gg/HAFDzTnDrg
 
 🐌 Founder of RHLM MODDING (Mod your FiveM/GTA V, completely): https://discord.gg/6N9zfSgENw
 
